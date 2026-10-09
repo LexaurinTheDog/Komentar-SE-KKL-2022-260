@@ -184,6 +184,8 @@ Andra stycket begränsar hävningsrätten. Om näringsidkaren tillhandahåller i
 
 Tredje stycket kräver att konsumenten meddelar näringsidkaren att han eller hon häver avtalet. Enligt 21 § andra stycket gäller 8 kap. 6 § för detta meddelande. Hävningens verkningar regleras i 15–18 §§; återbetalning vid prisavdrag och hävning ska enligt 18 § ske senast 14 dagar efter konsumentens krav eller meddelande.
 
+#### Konsumentens betalningsskyldighet och dröjsmål
+
 ### 9 kap. 13 § — Konsumentens betalningsskyldighet och dröjsmål
 
 **Lydelse:**
